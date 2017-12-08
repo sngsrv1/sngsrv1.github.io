@@ -1,1 +1,0 @@
-# sngsrv1.github.io
